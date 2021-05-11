@@ -1,2 +1,2 @@
 # first-repo
-My first repo
+Stay home! Stay safe!
